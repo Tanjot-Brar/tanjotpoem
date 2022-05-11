@@ -5,3 +5,4 @@ Flowers can never be beat.
 Daises
 Diases smell better than candies
 Today is Wednesday so sunny that flowers are shining.
+Wednesday No school uniform.
